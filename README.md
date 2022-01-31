@@ -1,2 +1,1 @@
-# virus
-Hm, it looks like that file might've been a virus.
+Hm, it looks like that file might've been a virus. Instead of cooking up trouble, try cooking up a Spicy Italian Meatball: https://www.foodnetwork.com/recipes/ree-drummond/spicy-italian-meatballs.html
